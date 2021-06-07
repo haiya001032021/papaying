@@ -4,16 +4,14 @@
 -------
 #商务合作：papayingshi@gmail.com
 -------
-#访问地址(移动用户多试几次)：
+#访问地址(若遇到打不开用户多试几次)：
 -------
-#Http://papayingshi.com
--------
-#Http://papayingshi.com
--------
-#Http://papayingshi.com
--------
-#Http://papayingshi.com
--------
+[点击开始播放1](http://ppys2.xyz)
+===
+[点击开始播放2](http://ppys2.xyz)
+===
+[点击开始播放3](http://ppys2.xyz)
+===
 -------
 #(数字1-600多可以进入，移动端用户选择1-10的线路！！！)
 -------
@@ -25,7 +23,7 @@
 -------
 #3.安卓手机用户点击，或者打开设置，然后添加到书签或者添加到主屏幕。
 -------
-#谨记永久发布页哦，二师兄都记住了呢！Http://papayingshi.com
+#谨记永久发布页 Http://papayingshi.com
 -------
 #发送任意e-mail邮件：papayingshi@gmail.com 获取最新域名
 -------
